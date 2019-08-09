@@ -1,4 +1,4 @@
-##Sales Report MM 10AUG2019
+# Sales Report MM 10AUG2019
 
 
 The sales department throughout quarter three this year has invested heavily in preparation for October, creating over a thousand Bawdy Bags in June. With preparation in such bulk we were able to lower the cost of resources even further than previous builds and in the case of noisemakers provide a slightly better product in our bawdy bags. Clay Bags cost us $0.71 per unit to produce and Guild bags cost us $0.79 per unit to produce with a majority of bags being sold for $2.50 each that is a profit of $1.79 and $1.71 respectively. Looking into Q4 projections we are looking to sell around 1500 total with the Reno show and four clay shows in October looking to having the highest sales, if that goal is reached it will bring us $3,750 (approx. $2,500 of that being profit) from the Bawdy Bags alone.
