@@ -10,13 +10,14 @@
 ## Arriving at the theater
 - if you are arriving at the clay get as much inside as you can before call
 - set up suitcase on one of the tables and make sure everything is stocked and looks presentable
-Call time (when tables arrive)  
-Get table’s and set up based on regular set-up procedures (cash box in the middle one line that flows)  
-Confirm square is still ready to go  
-Assign roles for sales members and make sure everyone is on the same page  
-Place shitty raffle bag on stage and give MC breakdown  
-Double check everything looks presentable  
-Let security know when to let in  
+
+## Call time (when tables arrive)  
+- Get table’s and set up based on regular set-up procedures (cash box in the middle one line that flows)  
+- Confirm square is still ready to go  
+- Assign roles for sales members and make sure everyone is on the same page  
+- Place shitty raffle bag on stage and give MC breakdown  
+- Double check everything looks presentable  
+- Let security know when to let in  
 
 ## Let-in
 - sell, sell sell
