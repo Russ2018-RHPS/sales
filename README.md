@@ -1,7 +1,15 @@
 # sales.bawdycaste.com
-Sales Team 
-Page was worked on by Jaison B. and ~Chris G.~
-
-
-> "leave me out of this shit"  
--- chris g
+Active Sales Team:
+Thia A.
+Nina L.
+Russel/Roquel G.
+Critter M.
+Jess K.
+Julie S.
+Chris G.
+Jaison B.
+Lisa S.
+Jeb P.
+Sonja E. (membership pending)
+Hannah F. (membership pending)
+Jerrilyne C. (membership pending)
