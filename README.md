@@ -10,6 +10,6 @@ Chris G.
 Jaison B.
 Lisa S.
 Jeb P.
-Sonja E. (membership pending)
+Sonja E. 
 Hannah F. (membership pending)
-Jerrilyne C. (membership pending)
+Jerrilyne C. 
